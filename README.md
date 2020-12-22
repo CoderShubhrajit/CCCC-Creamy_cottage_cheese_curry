@@ -1,0 +1,1 @@
+This is a recipe about traditional Indian cottage cheese (paneer) curry (Shahi paneer).

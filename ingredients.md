@@ -1,0 +1,1 @@
+For Indian traditional cottage cheese curry, you need... spices (cinnamon, cloves, nutmegs, cummin seeds,coriander seeds, turmeric, salt and seasame seeds), ginger-garlic, onion, tomato, chili(as per your wish), cashew nuts, and of course, some fresh cottage cheese (paneer).
